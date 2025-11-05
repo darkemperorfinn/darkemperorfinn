@@ -1,7 +1,7 @@
 <img width="1441" height="664" alt="image" src="https://github.com/user-attachments/assets/7df3e84d-1977-48bd-ae26-dc6e336f33d5" />
 finn , he/him , 18
 artist c(:
-# read [carrd](https://finniskindacool.carrd.co) for more about me <3
+read [carrd](https://finniskindacool.carrd.co) for more about me <3
 
 
 <!--

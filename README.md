@@ -2,3 +2,4 @@
 <p align="center"> finn , he/him , 18</p>
 <p align="center">artist!</p>
 <p align="center">https://finniskindacool.carrd.co
+<p align="center">https://darkemperorfinn.atabook.org
